@@ -1,1 +1,0 @@
-# Dididziennik.pl
